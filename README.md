@@ -52,7 +52,7 @@ please be normal when interacting, i wont bother to block if i have to.
 
   of course, do not be problematic
 
-  extremely dry people irritate me, iwc if you are.
+  of course, if you are uncomfortable tell me!! ill understand.
 
   i dont friend people instantly. 
 
