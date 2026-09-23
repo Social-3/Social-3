@@ -15,5 +15,5 @@ $\texttt{\color{#FAAA88C}　︶︶.  ⟡  . ︶︶　 }$
 
 
 
-<img src="https://github.com/Social-3/Social-3/blob/ea2c85568e9998bfa24adc644ea17b235a899e83/4C1C361B-A6B9-40BA-A035-88FF23E47D01.webp" width="1000">
+<img src="https://github.com/Social-3/Social-3/blob/ea2c85568e9998bfa24adc644ea17b235a899e83/4C1C361B-A6B9-40BA-A035-88FF23E47D01.webp" width="800">
 </p>
