@@ -11,7 +11,7 @@
 
 
 
-$\texttt{\color{#FAAA88C}　︶︶.  ⟡  . ︶︶　 }$
+$\texttt{\color{#AAA88C}　︶︶.  ⟡  . ︶︶　 }$
 
 
 
